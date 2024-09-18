@@ -11,7 +11,7 @@ I am an IT student with a passion for data science. Eager to learn and adapt to 
 I’m diving into **data science** and looking to broaden my knowledge in the **IT sector**.
 
 ## 📫 Get in Touch
-Feel free to reach out to me via [Your Email] or connect with me on [LinkedIn](link-to-linkedin).
+Feel free to reach out to me via [Your Email] or connect with me on (www.linkedin.com/in/komal-prakash-81200332a).
 
 ---
 
